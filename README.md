@@ -1,3 +1,25 @@
+# BITCOIN BANK: 10% SOVEREIGN TIP 
+**Lummis de minimis + Trump 10% tariff → EXECUTED**
+
+<div align="center">
+
+**🚀 3 THINGS STAFFERS NEED:**
+1️⃣ Tax-free daily Bitcoin payments (sats coffee)  
+2️⃣ 10% tariff auto-collected at protocol
+3️⃣ **Deployed. Test live 👇**
+
+[![⭐ Star this repo](https://img.shields.io/github/stars/joanna2028/bitcoin-bank-sovereign-stack?style=social)](https://github.com/joanna2028/bitcoin-bank-sovereign-stack)
+[![💰 Deploy Live](https://img.shields.io/badge/Deploy-Bitcoin%20Bank-blue?logo=github)](https://github.com/joanna2028/bitcoin-bank-sovereign-stack)
+
+**Lummis/BPI Deployed Feb 26, 2026** 🔥
+
+</div>
+
+**March 15 DC:** 15min staff walkthroughs open.
+
+👑⚡🇺🇸 **jo | @joan_internet**
+
+
 
 # Bitcoin Bank Sovereign Stack v1.0
 
