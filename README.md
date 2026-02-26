@@ -1,3 +1,20 @@
+
+
+
+# SUPPORT BITCOIN QUEEN ⚡🇺🇸
+
+**Bitcoin:** bc1qkguxxftw2k88au3vyakdgvzuxfq9tsjpcwdsla  ( BTC chain )
+
+
+![IMG_3854](https://github.com/user-attachments/assets/c4f57276-b319-4983-afa3-5f881ee7629e)
+
+**Deploy Bounties:** $500+ → GitHub Issues
+
+**Protocol donations = Sovereign Stack deployment velocity.**
+**Bitcoin Queen built solo. USA deploys together.**
+
+
+
 # BITCOIN BANK: 10% SOVEREIGN TIP 
 **Lummis de minimis + Trump 10% tariff → EXECUTED**
 
@@ -18,6 +35,7 @@
 **March 15 DC:** 15min staff walkthroughs open.
 
 👑⚡🇺🇸 **jo | @joan_internet**
+
 
 
 
