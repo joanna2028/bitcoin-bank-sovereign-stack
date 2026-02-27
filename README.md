@@ -1,8 +1,50 @@
+# BITCOIN BANK: SOVEREIGN STACK
+## JACK + JO + TRUMP = TARIFF SOLUTION
+
+**EXECUTED:** Jo rails fix DC tax + tariffs
+
+**ALIGNMENT:** Block (Jack) + Bitcoin Bank (Jo)
+
+**DC DEPLOY:** GAC March 1-5 → Crypto Council → White House → US VICTORY
+
+**DC PROOF:**
+
+- Jack/Jo/Trump tariff:
+
+ ![1aef0b3f-3d2f-4541-94e4-bac7a9d1faa5](https://github.com/user-attachments/assets/80d50e7b-425d-4723-8162-77f8f8d31e2a)
+ 
+- SEC:
+
+![PHOTO-2026-02-27-12-20-29](https://github.com/user-attachments/assets/9570c34f-a357-49eb-b773-16c0120b3605)
+
+- Finance DC:
 
 ![PHOTO-2026-02-27-12-20-38](https://github.com/user-attachments/assets/10974781-ced3-43c3-91ff-e98d235d4365)
 
+**JACK + ME BUILD:**
+1. Bitcoin Bank → X money layer 
+2. Block → Bitcoin infra (Jack rails + Jo protocol)  
+3. Truth Social + X → Trump/Jack/Jo unified Bitcoin front
 
-![PHOTO-2026-02-27-12-20-29](https://github.com/user-attachments/assets/9570c34f-a357-49eb-b773-16c0120b3605)
+
+**URGENT - Feb 27:**
+
+* Block 10k→6k = Jack's "BUILD WITH ME" 
+* Jo Sovereign Stack = EXECUTED tariff solution
+* DC GAC March 1-5 = meetings LOCKED
+
+
+
+**AVAILABLE:** SF/DC/NY
+
+
+**RAILS LIVE:** bc1qkguxxftw2k88au3vyakdgvzuxfq9tsjpcwdsla
+
+---
+Jo BITCOIN QUEEN | X: @joan_internet  | Bitcoin Bank Founder
+
+
+
 
 
 
@@ -11,7 +53,7 @@
 
 <div align="center">
 
-**🚀 3 THINGS STAFFERS NEED:**
+** 3 THINGS STAFFERS NEED:**
 1️⃣ Tax-free daily Bitcoin payments (sats coffee)  
 2️⃣ 10% tariff auto-collected at protocol
 3️⃣ **Deployed. Test live 👇**
@@ -26,7 +68,6 @@
 **March 15 DC:** 15min staff walkthroughs open.
 
 👑⚡🇺🇸 **jo | @joan_internet**
-
 
 
 
