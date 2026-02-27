@@ -1,4 +1,11 @@
 
+![PHOTO-2026-02-27-12-20-38](https://github.com/user-attachments/assets/10974781-ced3-43c3-91ff-e98d235d4365)
+
+
+![PHOTO-2026-02-27-12-20-29](https://github.com/user-attachments/assets/9570c34f-a357-49eb-b773-16c0120b3605)
+
+
+
 # BITCOIN BANK: 10% SOVEREIGN TIP 
 **Lummis de minimis + Trump 10% tariff → EXECUTED**
 
