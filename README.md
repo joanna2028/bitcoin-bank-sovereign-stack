@@ -14,6 +14,10 @@
 **Bitcoin Queen built solo. USA deploys together.**
 
 
+WOS:
+lnurl1dp68gurn8ghj7ampd3kx2ar0veekzar0wd5xjtnrdakj7tnhv4kxctttdehhwm30d3h82unvwqhhxmr9dejx2unndpexjmtsxqmqnsr6m5
+
+
 
 # BITCOIN BANK: 10% SOVEREIGN TIP 
 **Lummis de minimis + Trump 10% tariff → EXECUTED**
