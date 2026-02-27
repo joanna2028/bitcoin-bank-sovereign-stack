@@ -21,6 +21,7 @@
 
 ![PHOTO-2026-02-27-12-20-38](https://github.com/user-attachments/assets/10974781-ced3-43c3-91ff-e98d235d4365)
 
+
 **JACK + ME BUILD:**
 1. Bitcoin Bank → X money layer 
 2. Block → Bitcoin infra (Jack rails + Jo protocol)  
@@ -91,6 +92,10 @@ Jo BITCOIN QUEEN | X: @joan_internet  | Bitcoin Bank Founder
 <img width="592" height="382" alt="Screenshot 2026-02-25 at 10 37 09 PM" src="https://github.com/user-attachments/assets/7ed2c120-f0f6-427b-ab62-26077cb270f3" />
 
 <img width="588" height="415" alt="Screenshot 2026-02-25 at 10 42 19 PM" src="https://github.com/user-attachments/assets/96e58bd5-d6be-48bf-ab1e-423e233dba13" />
+
+<img width="592" height="458" alt="Screenshot 2026-02-27 at 8 23 33 PM" src="https://github.com/user-attachments/assets/0ae59c27-70f3-49a7-8d27-8dc45cbf7fb2" />
+
+<img width="587" height="478" alt="Screenshot 2026-02-27 at 8 28 04 PM" src="https://github.com/user-attachments/assets/e2c7681a-985e-4a2e-85d2-91cd579b807f" />
 
 
 
