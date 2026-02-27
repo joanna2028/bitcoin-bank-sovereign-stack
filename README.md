@@ -1,24 +1,4 @@
 
-
-
-# SUPPORT BITCOIN QUEEN ⚡🇺🇸
-
-**Bitcoin:** bc1qkguxxftw2k88au3vyakdgvzuxfq9tsjpcwdsla  ( BTC chain )
-
-
-![IMG_3854](https://github.com/user-attachments/assets/c4f57276-b319-4983-afa3-5f881ee7629e)
-
-**Deploy Bounties:** $500+ → GitHub Issues
-
-**Protocol donations = Sovereign Stack deployment velocity.**
-**Bitcoin Queen built solo. USA deploys together.**
-
-
-WOS:
-lnurl1dp68gurn8ghj7ampd3kx2ar0veekzar0wd5xjtnrdakj7tnhv4kxctttdehhwm30d3h82unvwqhhxmr9dejx2unndpexjmtsxqmqnsr6m5
-
-
-
 # BITCOIN BANK: 10% SOVEREIGN TIP 
 **Lummis de minimis + Trump 10% tariff → EXECUTED**
 
@@ -86,3 +66,22 @@ Nostr (Identity/Messaging) → Lightning (Payments) → Multi-sig Custody → Ne
 
 jo | Bitcoin Queen 👑⚡🇺🇸
 [DIRECTING BITCOIN WORLD ORDER FROM USA]
+
+
+# SUPPORT BITCOIN QUEEN ⚡🇺🇸
+
+**Bitcoin:** bc1qkguxxftw2k88au3vyakdgvzuxfq9tsjpcwdsla  ( BTC chain )
+
+
+![IMG_3854](https://github.com/user-attachments/assets/c4f57276-b319-4983-afa3-5f881ee7629e)
+
+**Deploy Bounties:** $500+ → GitHub Issues
+
+**Protocol donations = Sovereign Stack deployment velocity.**
+**Bitcoin Queen built solo. USA deploys together.**
+
+
+WOS:
+lnurl1dp68gurn8ghj7ampd3kx2ar0veekzar0wd5xjtnrdakj7tnhv4kxctttdehhwm30d3h82unvwqhhxmr9dejx2unndpexjmtsxqmqnsr6m5
+
+
