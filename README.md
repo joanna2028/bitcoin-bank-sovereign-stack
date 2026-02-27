@@ -27,6 +27,8 @@
 2. Block → Bitcoin infra (Jack rails + Jo protocol)  
 3. Truth Social + X → Trump/Jack/Jo unified Bitcoin front
 
+<img width="597" height="709" alt="Screenshot 2026-02-27 at 8 32 05 PM" src="https://github.com/user-attachments/assets/b3670903-9e40-4248-87af-e2e883965399" />
+
 
 **URGENT - Feb 27:**
 
