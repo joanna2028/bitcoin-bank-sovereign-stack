@@ -1,0 +1,9 @@
+
+
+
+sovereign-stack/
+├── rails-core.js          # Bitcoin-native tariff settlement
+├── dc-tax-protocol.md     # GAC/Trump/DC compliance layer  
+├── x-money-layer.md       # X-integrated censorship-resistant payments
+├── cross-border.json      # Global trade settlement specs
+└── README-PROTOCOL.md     # Technical execution guide
