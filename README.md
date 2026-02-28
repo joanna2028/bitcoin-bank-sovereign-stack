@@ -1,3 +1,24 @@
+* Bitcoin Bank Sovereign Stack is Jo Bitcoin Queen’s protocol: Bitcoin-native rails to handle tariffs, taxation, and cross-border settlement for Trump’s America and global trade, integrated with X and open Bitcoin infrastructure.
+
+
+# BITCOIN BANK: SOVEREIGN STACK
+## Censorship-resistant rails fixing Trump tariffs + DC taxation
+
+**What it is:**  
+Bitcoin Bank Sovereign Stack is JO Bitcoin Queen's protocol: Bitcoin-native rails for tariffs, taxation, cross-border settlement. Built for X + global Bitcoin infrastructure.
+
+**Who it's for:**  
+Trump's America, DC (GAC/Crypto Council), global trade, X sovereign money layer.
+
+**DC/Trump Context:**  
+- DC GAC Mar 1-5: Physical meetings locked  
+- Trump tariffs: Protocol LIVE
+- SEC coordination: Proof screenshots
+
+**How to use / Rails:**  
+bc1qkguxxftw2k88au3vyakdgvzuxfq9tsjpcwdsla
+
+
 # BITCOIN BANK: SOVEREIGN STACK
 ## JACK + JO + TRUMP = TARIFF SOLUTION
 
@@ -45,7 +66,6 @@
 
 ---
 Jo BITCOIN QUEEN | X: @joan_internet  | Bitcoin Bank Founder
-
 
 
 
