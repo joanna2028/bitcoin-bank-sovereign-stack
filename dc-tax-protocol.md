@@ -13,4 +13,4 @@
 - Process: Bitcoin rails settlement  
 - Output: Compliance receipt + on-chain proof
 
-**Status:** Protocol LIVE. DC physical Mar1-5.
+**Status:** Protocol LIVE. DC physical Mar1-5. 
